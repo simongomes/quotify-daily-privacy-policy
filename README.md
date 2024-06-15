@@ -1,0 +1,1 @@
+# quotify-daily-privacy-policy
